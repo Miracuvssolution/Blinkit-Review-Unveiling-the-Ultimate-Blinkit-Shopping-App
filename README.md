@@ -18,7 +18,7 @@ Convenient Ordering and Fast Delivery
 
 With Blinkit, shopping has never been easier. Simply browse the app, add items to your cart, and checkout with just a few taps. And thanks to Blinkit's lightning-fast delivery service, you'll receive your order in no time. Whether you need groceries delivered straight to your door or last-minute essentials for an upcoming event, Blinkit has you covered.
 
-Why Choose <a href="https://miracuves.com/product/blinkit-clone/">review</a>?
+Why Choose <a href="https://miracuves.com/product/blinkit-clone/">Blinkit App</a>?
 
 With so many shopping apps out there, why should you choose Blinkit? The answer is simple: convenience, quality, and reliability. With Blinkit, you can shop with confidence knowing that you're getting top-notch products at competitive prices. Plus, with features like real-time order tracking and secure payment options, you can trust that your shopping experience will be smooth and stress-free.
 
